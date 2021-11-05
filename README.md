@@ -1,3 +1,3 @@
 🔨 Building CurrentClient.com
 
-👷‍♂️ Available for hire
+👷‍♂️ Available for contract work
